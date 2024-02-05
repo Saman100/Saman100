@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Saman100
-- 👀 I’m interested in btc
+- 👀 I’m interested in eth
 - 🌱 I’m currently learning trading
 - 💞️ I’m looking to collaborate on us
 - 📫 How to reach me with your lough
